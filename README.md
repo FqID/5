@@ -77,9 +77,9 @@
 <a target="_blank" href="https://github.com/uuu3/u/blob/master/u.md#1"><img src="https://raw.githubusercontent.com/19920513/www/master/t/lh600.jpg"></a><br>
 
 
-<font color="#0000A0"><strong>稳&nbsp; 定&nbsp; 翻&nbsp; 墙&nbsp; 请&nbsp; 下&nbsp; 载&nbsp; 自&nbsp; 由&nbsp; 门</strong>
 
 
+<h1><p><strong>稳定翻墙请下载自由门</strong></p></h1>
 
 
 
@@ -100,8 +100,8 @@
 
 
 
-<font color="#0000A0"><strong>索&nbsp; 取&nbsp; 自&nbsp; 由&nbsp; 门</strong>
 
+<h1><p><strong>索取自由门</strong></p></h1>
 &nbsp;&nbsp;&nbsp;<a href="ziyoumen99@gmail.com">ziyoumen99@gmail.com</a> <br>
 &nbsp;&nbsp;&nbsp;<a href="freeget.one@gmail.com">freeget.one@gmail.com</a> 
 
