@@ -19,7 +19,7 @@
 <a target="_blank" href="https://github.com/19920513/www/tree/master"><img src="https://raw.githubusercontent.com/19920513/www/master/t/lh600.jpg"></a><br>
 
 
-<h1><p><strong>临&nbsp; 时&nbsp; 翻&nbsp; 墙&nbsp; 看&nbsp; 自&nbsp; 由&nbsp; 新&nbsp; 闻&nbsp; </strong></p></h1>
+<h1><p><strong>临时翻墙看自由新闻</strong></p></h1>
 
 &nbsp;&nbsp;&nbsp; <a href="http://d38dn59fpvpudb.cloudfront.net/?vvSs46CLMuga=_FPq6&M2kabW=rWBoCu7Or&oXP7fxvDR=t93YN&Cxz1b7b8z=G72e6sG&aY=xWDGU#">地&nbsp; 址&nbsp; 一</a> 
 &nbsp;&nbsp;&nbsp;<br>
@@ -35,7 +35,7 @@
 
 
 
-
+<a target="_blank" href="https://github.com/19920513/www/tree/master"><img src="https://raw.githubusercontent.com/19920513/www/master/t/lh600.jpg"></a><br>
 
 
 
