@@ -101,14 +101,15 @@
 
 
 
-<h1><p><strong>索取自由门</strong></p></h1>
+<h1><p><strong>索取自由门邮箱</strong></p></h1>
 &nbsp;&nbsp;&nbsp;<a href="ziyoumen99@gmail.com">ziyoumen99@gmail.com</a> <br>
 &nbsp;&nbsp;&nbsp;<a href="freeget.one@gmail.com">freeget.one@gmail.com</a> 
 
 <br>
 <a target="_blank" href="https://github.com/soundofhope/www"><img src="https://raw.githubusercontent.com/19920513/www/master/t/lh600.jpg"></a><br>
 
-&nbsp;人&nbsp;人&nbsp;传&nbsp;播&nbsp;动&nbsp;态&nbsp;网&nbsp;，&nbsp;网&nbsp;络&nbsp;封&nbsp;锁&nbsp;封&nbsp;不&nbsp;了&nbsp;。
+
+<h1><p><strong>人人传播动态网，网络封锁封不了</strong></p></h1>
 <body>
 
 
