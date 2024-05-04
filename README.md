@@ -138,6 +138,9 @@
 
 
 <br>
+<a id="user-content-1" href="#1">
+<div align="center">
+
 <a href="http://www.easycounter.com/">
 <img src="http://www.easycounter.com/counter.php?45tertwer"
 border="0" alt="stats counter"></a>
